@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iz8dwf
-- iz8dwf@amsat.org
+- You can contact me via www.aussiearcade.com forum
 
 <!---
 iz8dwf/iz8dwf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
